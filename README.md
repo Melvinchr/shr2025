@@ -1,1 +1,2 @@
-# stock photos
+# Stock photos
+Ladda upp stock photos här
